@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @tiyixif29josda
+- I upload bad script in scriptblox.com and rscripts.net
+- That's all
